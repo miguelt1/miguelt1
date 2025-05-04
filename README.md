@@ -3,5 +3,5 @@
 
 ### Find me elsewhere 🌎
 
-🚀 [Site](https://mtavares.dev) <br>
+🚀 [Site]([https://mtavares.dev](https://www.linkedin.com/in/miguel-tavares51/)) <br>
 
